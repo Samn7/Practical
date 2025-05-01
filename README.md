@@ -1,2 +1,1 @@
-# Rename Krne hai Cries:
-
+#Good Luck!!
